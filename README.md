@@ -1,2 +1,2 @@
 # hackathonClickBait
-ALIYOZ 4000İ !!!
+ALDIK MI 4000İ !!!
